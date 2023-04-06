@@ -1,5 +1,5 @@
 ### Hi there 👋
-- 🔭 I’m currently working on reading research about the effects divorce has on children 
+- 🔭 I’m currently working on research about the effects divorce has on children 
 - 🌱 I’m currently learning about globalization 
 - 👯 I’m looking to collaborate on any research or internships that involve with social science 
 - 🤔 I’m looking for help with how to code and more about tech
